@@ -1,1 +1,1 @@
-# Ak-ll-Kulu-ka-Makinesi
+# Akıllı Kuluçka Makinesi
